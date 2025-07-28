@@ -1,3 +1,0 @@
-# Begin
-<br>
-Author : Lem
